@@ -12,3 +12,7 @@ RSM actively strives to foster a holistic spirit of research and encourages stud
 
 For more details, do check out our [Website](https://www.researchsocietymit.com/)!
 
+Linkedin 📧: [Research Society MIT Manipal](https://www.linkedin.com/company/66910953/admin/)
+
+Email 💬: research.society.mit@gmail.com
+
